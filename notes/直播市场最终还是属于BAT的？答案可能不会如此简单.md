@@ -153,6 +153,4 @@
 
 或许，你并不看好小米取代百度成为新三巨头之一，也请正视雷军在小米直播上卖萌到底的决心。
 
-![loading...](https://app.yinxiang.com/shard/s60/res/8937a3f4-ab42-494a-baca-59f7b1a1aea8.jpg)
-
-戳这里
+![[Pasted image 20230128003353.png]]
